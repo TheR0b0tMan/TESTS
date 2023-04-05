@@ -5,4 +5,4 @@ https://replit.com/@n1xk/Minecraft-On-Replit-READ-THE-DESCRIPTION?v=1
 
 https://replit.com/@ArmaanSingh30/Minecraft-On-Replit-READ-THE-DESCRIPTION?v=1
 
-https://eagler.nully.tech/servers
+https://eaglercraft.ru
