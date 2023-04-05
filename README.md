@@ -5,4 +5,4 @@ https://replit.com/@n1xk/Minecraft-On-Replit-READ-THE-DESCRIPTION?v=1
 
 https://replit.com/@ArmaanSingh30/Minecraft-On-Replit-READ-THE-DESCRIPTION?v=1
 
-https://wormgames.com
+https://wormgame.com
