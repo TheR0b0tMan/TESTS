@@ -1,3 +1,3 @@
 # TESTS
-https://g.eags.us/eaglercraft/singleplayer_test
+https://g.eags.us/eaglercraft/singleplayer_test/
 
