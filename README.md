@@ -1,3 +1,3 @@
 # TESTS
-https://g.eags.us/eaglercraft/singleplayer_test/
+https://csb-ee8w3y-lhhl0sgzk-lfierro743.vercel.app/
 
