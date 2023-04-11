@@ -10,3 +10,5 @@ https://minecraft0nline69.wixsite.com/minecraft-online
 https://eaglercraft.armaansingh30.repl.co
 
 https://eaglercraft-old.armaansingh30.repl.co
+
+https://eaglercraftx-replit.armaansingh30.repl.co
