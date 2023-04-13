@@ -16,3 +16,5 @@ https://eaglercraftx-replit.armaansingh30.repl.co
 https://reslauncher.vercel.app/
 
 https://progamers.armaansingh30.repl.co
+
+https://essentialsx.net/downloads.html
