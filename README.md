@@ -12,3 +12,5 @@ https://eaglercraft.armaansingh30.repl.co
 https://eaglercraft-old.armaansingh30.repl.co
 
 https://eaglercraftx-replit.armaansingh30.repl.co
+
+https://reslauncher.vercel.app/
