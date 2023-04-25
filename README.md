@@ -20,3 +20,5 @@ https://progamers.armaansingh30.repl.co
 https://essentialsx.net/downloads.html
 
 https://sneslover22.github.io
+
+https://pastebin.com/raw/n6bDrvQR 
