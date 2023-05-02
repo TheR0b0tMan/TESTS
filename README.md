@@ -22,3 +22,5 @@ https://essentialsx.net/downloads.html
 https://sneslover22.github.io
 
 https://pastebin.com/raw/n6bDrvQR 
+
+https://csb-ee8w3y-cdt2yxydg-lfierro743.vercel.app/
